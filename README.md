@@ -7,3 +7,4 @@ F U BAZZITE FOR DAMAGING OUR ROG ALLYS!!!!
  CROOKS!!! They don't care if you device is broken or not. It is THEIR FAULT!!
 
  As soon as I finish the iso, it will be here.
+![alt text](https://github.com/f3232c82-f16d-49bf-8c2b-3a5d922539d8)
