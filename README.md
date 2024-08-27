@@ -1,6 +1,6 @@
 # bazzite-rgb-fix
 I'll release my own fix here. They can not even fix their own stuff. Posers
-F U BAZZITEFR DAMAGING OUR TOG ALLYS!!!!
+F U BAZZITE FOR DAMAGING OUR ROG ALLYS!!!!
 
  Read my pdf, they promised to replace. They lied and banned me.
 
