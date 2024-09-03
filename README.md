@@ -6,7 +6,9 @@ F U BAZZITE FOR DAMAGING OUR ROG ALLYS!!!!
 
  CROOKS!!! They don't care if you device is broken or not. It is THEIR FAULT!!
 
- As soon as I finish the iso, it will be here.
+ As soon as I finish the iso, it will be here. 
+
+ Almost done idc what they posted. They think they rule Linux. See image below fir special message to those vbazzite idiots!!
 
 
 ![screenshot](5_3a01cc0f-054f-4784-b102-1c7a97927ea6(1).jpg)
